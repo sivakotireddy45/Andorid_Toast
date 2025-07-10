@@ -8,5 +8,10 @@
 
 ### Toast Messages
 ![Screenshot 2025-07-05 203231](https://github.com/user-attachments/assets/1534cbd9-a631-4fe5-bb73-f5d928f664c7)
+![Screenshot 2025-07-05 203208](https://github.com/user-attachments/assets/0a46662c-322d-4356-9e84-bb6e64a47b2b)
+![Screenshot 2025-07-05 203221](https://github.com/user-attachments/assets/bc422c47-d8da-415a-8fc1-70c14e0f9c49)
+
+
+
 
 
